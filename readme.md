@@ -1,2 +1,2 @@
 # my notebook
-halo my name is claire and i love my bibi 💋❤️
+halo my name is claire 
